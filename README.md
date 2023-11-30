@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MariahCamille
-- 👀 I’m interested in feeling out life through mindfulness.
-- 🌱 I’m currently learning business with digital marketing specialization.
-- 💞️ I’m looking to collaborate on growth.
+- 🌚 I’m interested in feeling out life through mindfulness. 🌝
+- 🌱 I’m currently learning business with digital marketing specialization.🌱
+- 🦋 I’m looking to collaborate on growth.🦋
 - 📫 How to reach me 4328675309.
 
 <!---
